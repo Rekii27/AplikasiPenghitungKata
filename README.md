@@ -1,0 +1,2 @@
+# AplikasiPenghitungKata
+TUGAS5-DimasFebryanPangestu-2310010645
